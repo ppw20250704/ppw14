@@ -17,4 +17,4 @@
 
 综上所述，一个排名靠前的“日本AV免费”平台应具备海量且更新及时的影片库，极速流畅的播放体验，纯净无广告的观影环境，以及智能分类和推荐机制。通过持续优化内容和技术，满足用户多样化的观看需求，才能在激烈的竞争中脱颖而出，实现关键词的高效排名。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/ppw20250704/ppw14 ）</span>
